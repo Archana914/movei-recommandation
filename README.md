@@ -136,8 +136,8 @@ Feel free to fork this repo and contribute!
 
 ## 📧 Contact
 
-👤 Nikhil Kumawat
-📩 Email: [nikhilkumawat7689@gmail.com](mailto:your-email@example.com)
+👤 Archana Tiwari
+📩 Email: [archana.tiwariii55@gmail.com](mailto:your-email@example.com)
 
 ---
 
